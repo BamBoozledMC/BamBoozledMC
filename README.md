@@ -1,5 +1,5 @@
 ### Welcome to My GitHub profile
-I'm from Australia 🇦🇺
+I'm from Australia 🇦🇺  
 I enjoy coding and gaming  
 
 Also known as BamBoozled#0882 on Discord
